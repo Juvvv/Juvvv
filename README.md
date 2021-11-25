@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Juvvv
+- 👀 I’m interested in ethical hacking
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on my girlfriend
+- 📫 How to reach me in my house :)
